@@ -1,8 +1,1 @@
-
-Kunjungi situs ini kembali setelah kami memperbaikinya
-____   __      _          _
-  / __ \ / _| ___| |__  _ __| |
- / / _` | |_ / _ \ '_ \| '__| |
-| | (_| |  _|  __/ |_) | |  | |
- \ \__,_|_|  \___|_.__/|_|  |_|____ _____
-  \____/                     |_____|_____|
+Situs sedang di perbaiki,kunjungi nanti.thanks☺️
