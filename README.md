@@ -1,2 +1,4 @@
-Situs sedang di perbaiki,kunjungi nanti.thanks☺️
-![logo.jpg]( {logo.jpg} )
+Dimalam yang gelap
+Ditidur yang lelap
+Sebuah benda mengkilap
+Melayang & menyakiti dengan senyap
